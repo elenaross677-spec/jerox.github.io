@@ -1,2 +1,2 @@
-# franchiseopportunitiesus.com
+# franchiseopportunities.us.com
 Investment website
